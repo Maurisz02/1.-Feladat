@@ -1,4 +1,4 @@
-# [Név]
+# Pintér Ádám aka Maurisz
 
 
 ## Hogyan kezdj neki?
